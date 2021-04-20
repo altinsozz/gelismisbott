@@ -1,4 +1,6 @@
-# Bayrak#1337 tarafından github'a yüklenmiştir.
+BU BOT Elwasy#3071'e AİTTİR İZİNSİZ PAYLAŞILMASI YASAKTIR!!!!!!
 
-# Bana ait değildir.
-# Kullanabilirsiniz.
+
+
+
+KOMUTLAR CODARE SUNUCUSUNA AİTTİR  İZİNSİZ PAYLAŞILMASI YASAKTIR!!!!!!!
